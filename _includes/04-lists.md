@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+# Here are something I want to share!
+1. Sports
+2. Energetic 
+   - Strict Mindsets
+   - Execution
+3. :+1:
